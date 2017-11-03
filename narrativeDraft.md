@@ -10,6 +10,6 @@ I decide to build my own fairy door.  When I was a kid, I had an imaginary frien
 
 I step back and notice that something is missing.  I build a leaf path so that others can follow it and find the entrance to a whole new world.  At the bottom of most tree trunks, usually between the thick roots, are doors to real fairy homes beneath the Earth.  Here, fairies live in a complex society, invisible to most adults.  When you're a kid, it's easy to see.  
 
-It makes perfect sense as a child to explain these seasonal changes via magic; there are no such things as atmospheric science and astronomy.  Qualitative observations outweigh quantitative observations.  Stories and play construct a world view that peels away physical layers of nature and reveal its underlying form.  Pebbles lives in a world where roots dangle from the domed ceiling - the underworld - whereas we live in one where the sun and the moon travel across the sky, taking turns as our world rotates endlessy around the sun.  
+It makes perfect sense as a child to explain these seasonal changes via magic; there are no such things as atmospheric science and astronomy.  Qualitative observations outweigh quantitative observations.  Stories and play construct a world view that peels away physical layers of nature and reveal its underlying form.  Pebbles lives in a world where roots dangle from the domed ceiling - the underworld - whereas we live in one where the sun and moon travel across the sky, taking turns as our world rotates endlessy around the sun.  
 
 
